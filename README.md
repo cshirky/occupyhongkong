@@ -5,11 +5,11 @@ Occupy Hong Kong: Macro scale, micro-adaptations
 
 Back in 2011, I was small part of the Occupy Wall Street movement (occasionally helping stock the kitchen and First Aid tents in Zuccotti Park), so arriving in Hong Kong, I had a sense of what [Occupy Central with Love and Peace](http://en.wikipedia.org/wiki/Occupy_Central_with_Love_and_Peace) would look like.
 
-This morning, I headed over to Central, the main street through Hong Kong's financial district, to see the occupation trying to secure for Hong Kong [the democratic election they were promised in 2017](http://en.wikipedia.org/wiki/2014_Hong_Kong_electoral_reform). Walking east from the ferry terminal, the scale of the event certainly seemed like Occupy in New York -- hundreds of people, many wearing that dazed, curious smile people get when they see their fellow citizens behaving as if politics could include them. Walking uphill on Central, now turned into a political pedestrian mall, felt like a kind of elongated Zuccotti Park. 
+This morning, I headed over to Central, the main street through Hong Kong's financial district, to see the occupation trying to secure for Hong Kong [the democratic election they were promised in 2017](http://en.wikipedia.org/wiki/2014_Hong_Kong_electoral_reform). Walking east from the ferry terminal, the scale of the event certainly seemed like Occupy in New York -- hundreds of people, many wearing that dazed, curious smile people get when they see their fellow citizens behaving as if politics could include them. 
 
-And then I got to the crest of the roadway, and looked down towards the Admiralty neighborhood, the moment captured in the picture above. 
+Walking uphill on Central, now turned into a political pedestrian mall, felt like a kind of elongated Zuccotti Park. Then I got to the crest of the roadway, and looked down towards the Admiralty neighborhood, the moment captured in the picture above. 
 
-And I realized how wrong I was about the size. Occupy Central is absolutely massive, endless participation as far as the eye can see. (Amazement at the scale of the event seemed to be a common reaction -- my picture above includes several other people holding up their cameras at about the same spot, having had roughly the same reaction.)
+And I realized how wrong I was about the size. Occupy Central is absolutely massive, endless participation as far as the eye can see. (Amazement at the scale of the event seemed to be a common reaction -- my picture includes several other people holding up their cameras at about the same spot, having had roughly the same reaction.)
 
 ![Occupy Hong Kong on October 1] (photos/scale2.jpg "View looking west, back from Admiralty")
 
