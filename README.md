@@ -23,7 +23,7 @@ One common pattern is signs, of course...
 
 ![A warning to the police] (https://github.com/cshirky/occupyhongkong/blob/master/nuremberg_sign.jpg "A warning to the police")
 
-![One message, many languages] (https://github.com/cshirky/occupyhongkong/blob/master/nuremberg_sign.jpg "One message, many languages")
+![One message, many languages] (https://github.com/cshirky/occupyhongkong/blob/master/wall_signs.jpg "One message, many languages")
 
 ![A clear statement of purpose] (https://github.com/cshirky/occupyhongkong/blob/master/nomination.jpg "A clear statement of purpose")
 
