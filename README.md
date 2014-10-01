@@ -1,5 +1,4 @@
-Occupy Hong Kong: 
-Macro scale, micro-adaptations
+Occupy Hong Kong: Macro scale, micro-adaptations
 =========
 
 ![Occupy Hong Kong on October 1, a national holiday] (https://github.com/cshirky/occupyhongkong/blob/master/scale1.jpg "View looking east to Admiralty")
@@ -74,4 +73,4 @@ My friend Marianne Manilov pointed out to me that Occupy Wall Street matched its
 
 ![Food and water for whoever needs it] (https://github.com/cshirky/occupyhongkong/blob/master/abundance.jpg "Food and water for whoever needs it")
 
-The speed with which the participants in this movement have built an encampment with food and water and first aid and even border crossings is impressive. They have shown us, at a scope unimaginable even in Zuccotti Park in 2011, what it means to occupy a space.
+The speed with which the participants in this movement have built an encampment with food and water and first aid and even border crossings is impressive. They have shown us, at a scope unimaginable even in Zuccotti Park in 2011, what it means to occupy a space. The odds against this movement are serious, but they have shown, yet again but at an astonishing scale, that adapting urban space to political communication is an imaginative act, and one which they have handled impressively.
