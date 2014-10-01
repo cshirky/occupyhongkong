@@ -12,3 +12,9 @@ I arrived in Hong Kong yesterday, and this morning I went over to Central. At fi
 This movement is absolutely massive, operating at a scale I have never seen in an occupation, endless participation as far as the eye can see. 
 
 ![Occupy Hong Kong on October 1] (https://github.com/cshirky/occupyhongkong/blob/master/scale2.jpg "View looking west, back from Admiralty")
+
+I took my kids with me, and while I have never lost my midwesterner's wonder at big cities, they were raised in New York City and now live in Shanghai, so crowds don't phase them much. What they focussed on (and what came to interest me) were the ways that the occupation is rapidly adapting to the need to inhabit a two mile stretch of asphalt 24/7. 
+
+The first thing we noticed was the need to decorate, to take impersonal space and say "We're here. This matters." Cities are occupied, every day, by their residents. To make an occupation different, to kick off a political conversation, requires taking urban-scale space and adding human scale messages.
+
+![Occupy Hong Kong: The western-most barricade, decorated with broken umbrellas] (https://github.com/cshirky/occupyhongkong/blob/master/umbrellas_barricades.jpg "Barricades decorated with broken umbrellas")
