@@ -45,9 +45,9 @@ Because the first clash of the protest involved occupiers defending themselves a
 
 ![Occupy Hong Kong: The western-most barricade, decorated with broken umbrellas] (https://github.com/cshirky/occupyhongkong/blob/master/umbrellas_barricades.jpg "Barricades decorated with broken umbrellas")
 
-Even broken umbrellas can serve a second, rhetorical function. Tied the the western-most barricade on Central, the umbrellas say "This is where business as usual stops and our particular [temporary autonomous zone](http://hermetic.com/bey/taz1.html#labelChaosSection) starts."
+Even broken umbrellas can serve a second, rhetorical function. Tied to the the western-most barricade on Central, the umbrellas say "This is where business as usual stops and our particular [temporary autonomous zone](http://hermetic.com/bey/taz1.html#labelChaosSection) starts."
 
-Since Hong Kong is, per Wikipedia, "a monsoon-influenced humid subtropical climate", umbrellas are ubiquitous; politicizing them provides some of the [hiding in plain sight](http://www.theatlantic.com/technology/archive/2012/07/a-tale-of-two-memes-the-powerful-connection-between-trayvon-martin-and-chen-guangcheng/259604/) politicization that An Xiao Mina has written about so brilliantly. It also means that political symbols are readily for sale in a country known for subtle and pervasive symbolic control. 
+Since Hong Kong is, per Wikipedia, "a monsoon-influenced humid subtropical climate", umbrellas are ubiquitous; politicizing them provides some of the [hiding in plain sight](http://www.theatlantic.com/technology/archive/2012/07/a-tale-of-two-memes-the-powerful-connection-between-trayvon-martin-and-chen-guangcheng/259604/) symbolism An Xiao Mina has written about so brilliantly. It also means that political symbols are readily for sale in a country known for subtle and pervasive symbolic control. 
 
 ![Umbrellas at the ready, for rain or pepper spray] (https://github.com/cshirky/occupyhongkong/blob/master/umbrella_armory.jpg "Umbrellas at the ready, for rain or pepper spray")
 
@@ -59,18 +59,18 @@ Likewise, the site of the occupation is distinctly _not_ pedestrian friendly. Ce
 
 ![Stairs added to get people over the barrier] (https://github.com/cshirky/occupyhongkong/blob/master/crossing2-1.jpg "Stairs added to get people over the barrier")
 
-The other famous adaptation was to tear gas, with impromptu gas masks being created out of goggles and saran wrap around people's faces.
+The other famous adaptation was to tear gas, with impromptu gas masks being created out of goggles and saran wrap, which they now stock by the bale.
 
 ![Saran wrap, ready for defense against tear gas] (https://github.com/cshirky/occupyhongkong/blob/master/gas_mask.jpg "Saran wrap, ready for defense against tear gas")
 
-The occupation doesn't go in for political graffiti -- most signs are made and put up, rather than being painted directly onto walls. (Indeed, we saw protestors carefully scrubbing graffiti off the roadway today, an elaborate signal that this movement does not aim to destroy or deface.)
+The occupation doesn't go in for political graffiti -- most signs are made and put up, rather than being painted directly onto walls. (Indeed, we saw protestors carefully scrubbing graffiti off the roadway today, an elaborate signal that this movement does not aim to destroy or deface property.)
 
 ![Any visible surface can become a political billboard] (https://github.com/cshirky/occupyhongkong/blob/master/signs_on_the_ground.jpg "Any visible surface can become a political billboard")
 
 ![Chinese characters are modified to become logos for the movement] (https://github.com/cshirky/occupyhongkong/blob/master/umbrella_sign.jpg "Chinese characters are modified to become logos for the movement")
 
-My friend Marianne Manilov pointed out to me that Occupy Wall Street matched its political messages with a commitment to look after anyone who showed up. In the industrialized world, taking care of other people has become a radical political act. The occupiers of Hong Kong have created an impromptu but effective distribution system for food, water, first aid, cooling supplies.
+My friend Marianne Manilov pointed out to me that Occupy Wall Street strengthened its political message enormously with a commitment to look after anyone who showed up. In the industrialized world, taking care of other people has become a radical political act. The occupiers of Hong Kong have created an impromptu but effective distribution system for food, water, first aid, cooling supplies.
 
 ![Food and water for whoever needs it] (https://github.com/cshirky/occupyhongkong/blob/master/abundance.jpg "Food and water for whoever needs it")
 
-The speed with which the participants in this movement have built an encampment with food and water and first aid and even border crossings is impressive. They have shown us, at a scope unimaginable even in Zuccotti Park in 2011, what it means to occupy a space. The odds against this movement are serious, but they have shown, yet again but at an astonishing scale, that adapting urban space to political communication is an imaginative act, and one which they have handled impressively.
+The speed with which the participants in this movement have built an encampment with food and water and first aid and even border crossings is impressive. They have shown us, at a scope unimaginable even in Zuccotti Park in 2011, what it means to occupy a space. The odds against this movement are serious, but they have shown that adapting urban space to political communication is an act of shared imagination and adaptation.
