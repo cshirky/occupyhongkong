@@ -1,19 +1,20 @@
-Occupy Hong Kong: Macro scale, micro-adaptations
+Occupy Hong Kong: 
+Macro scale, micro-adaptations
 =========
 
 ![Occupy Hong Kong on October 1, a national holiday] (https://github.com/cshirky/occupyhongkong/blob/master/scale1.jpg "View looking east to Admiralty")
 
-I was small part of the Occupy Wall Street movement (working to help stock the kitchen and First Aid tents in Zuccotti Park), so I had a sense of what [Occupy Central with Love and Peace](http://en.wikipedia.org/wiki/Occupy_Central_with_Love_and_Peace), the Hong Kong movement to insist on [the democracy they were promised](http://en.wikipedia.org/wiki/2014_Hong_Kong_electoral_reform), would look like.
+I was small part of the Occupy Wall Street movement (occasionally helping stock the kitchen and First Aid tents in Zuccotti Park), so I had a sense of what [Occupy Central with Love and Peace](http://en.wikipedia.org/wiki/Occupy_Central_with_Love_and_Peace) would look like.
 
-I arrived in Hong Kong yesterday, and this morning I went over to Central, the main street through Hong Kong's financial district. At first, the scale of the event seemed like Occupy in New York -- hundreds of people occupying a public space. Walking uphill on Central, now turned into a political pedestrian mall, felt like a kind of elongated Zuccotti Park. 
+I arrived in Hong Kong yesterday, and this morning I went over to Central, the main street through Hong Kong's financial district to see the occupation trying to secure for Hong Kong [the democratic election they were promised](http://en.wikipedia.org/wiki/2014_Hong_Kong_electoral_reform). Walking east from the ferry terminal, the scale of the event certainly seemed like Occupy in New York -- hundreds of people occupying a public space. Walking uphill on Central, now turned into a political pedestrian mall, felt like a kind of elongated Zuccotti Park. 
 
 And then I got to the crest of the roadway, and looked down towards the Admiralty neighborhood, the moment captured in the picture above. 
 
-And I realized how wrong I was about the scale being like what we had in New York. This movement is absolutely massive, operating at a scale I have never seen in an occupation, endless participation as far as the eye can see. (This seemed to be a common reaction -- my picture includes several other people holding up their cameras at about the same spot, having had roughly the same reaction.)
+And I realized how wrong I was about the scale. Today was absolutely massive, operating at a scale I have never seen in an occupation, endless participation as far as the eye can see. (This seemed to be a common reaction -- my picture above includes several other people holding up their cameras at about the same spot, having had roughly the same reaction.)
 
 ![Occupy Hong Kong on October 1] (https://github.com/cshirky/occupyhongkong/blob/master/scale2.jpg "View looking west, back from Admiralty")
 
-I took my kids with me, and while I have never lost my midwesterner's wonder at big cities, we've raised in New York City and now in Shanghai, so crowds don't impress them much. What they focussed on (and what came to interest me) were the ways that the occupation is rapidly adapting to the need to inhabit a two mile stretch of asphalt 24/7. 
+I took my kids with me, and while I have never lost my midwesterner's wonder at tall buildings and lots of people, we've raised our kids in New York City and now in Shanghai, so crowds don't impress them much. What they focussed on (and what came to interest me) were the ways that the occupation is rapidly adapting to the need to inhabit a two-mile stretch of asphalt 24/7. 
 
 The first thing we noticed was the need to decorate, to take impersonal space and say "We're here. This matters." Cities are occupied, every day, by their residents. To make an occupation different, to kick off a political conversation in what had just been a transportation corridor, requires taking urban-scale space and adding human-scale adaptations. 
 
