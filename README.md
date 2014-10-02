@@ -29,7 +29,7 @@ One common pattern is signs, of course...
 
 _A clear statement of purpose: Beijing has said the only candidates who can stand for office in 2017 will be hand-picked by them; the Occupiers want to be able to nominate candidates, not just vote for them._
 
-Media is also a hugely important part of Occupy Central. All political movements look for coverage, of course, but here, evidence that an event is being documented takes on an additional resonance, since every bit of independent documentation knicks at the government's ability to keep coverage of he event limited to it's side of the story. Though the peer communication app FireChat is getting a workout (and a lot of attention as a result), the real social media story here is about publicity, not privacy. For people who want to be heard, the event has to carry past the streets of downtown Hong Kong, and outside the bounds of legacy Chinese media.
+Media is also a hugely important part of Occupy Central. All political movements look for coverage, of course, but here, evidence that an event is being documented takes on an additional resonance, since every bit of independent documentation knicks at the government's ability to keep coverage of the event limited to its side of the story. Though the peer communication app FireChat is getting a workout (and a lot of attention as a result), the real social media story here is about publicity, not privacy. For people who want to be heard, the event has to carry past the streets of downtown Hong Kong, and outside the bounds of legacy Chinese media.
 
 ![A photos of photos at the event the photo is documenting] (photos/photos.jpg "A photos of photos at the event the photo is documenting")
 
